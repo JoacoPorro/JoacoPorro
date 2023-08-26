@@ -1,4 +1,8 @@
-### Las Repos Libertarias
+## Las Repos Libertarias
+### Cualquier Material que quieran compartir lo pueden mandar a repos.libertarias@gmail.com 
+
+### Viva la Libertad Carajo!
+
 
 <!--
 **jporro/jporro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
