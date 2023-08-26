@@ -1,5 +1,5 @@
 ### Para Subir Material
-#### Cualquier material que quieran compartir lo pueden mandar a repos.libertarias@gmail.com.
+#### Cualquier material que quieran compartir lo pueden mandar a repos.libertarias@gmail.com
 #### Si perdieron el link a un drive bueno que quieren subir, en [Compartidos Conmigo](https://drive.google.com/drive/shared-with-me) en su google drive les figura todos los drives que les mandaron
 ### Viva la Libertad Carajo! Peluca 2023
 
