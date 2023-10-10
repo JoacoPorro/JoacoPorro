@@ -1,6 +1,6 @@
 ### Viva la Libertad Carajo!
-#### para mandar cosas: repos.libertarias@gmail.com
-#### Si no encontras el link a un drive bueno que querias subir, en [Drive - Compartidos Conmigo](https://drive.google.com/drive/shared-with-me) estan todos los drives que abriste
+#### Para mandar cosas: repos.libertarias@gmail.com
+#### En [Drive - Compartidos Conmigo](https://drive.google.com/drive/shared-with-me) estan todos los drives que abriste
 
 
 
