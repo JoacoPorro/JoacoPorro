@@ -1,5 +1,5 @@
 ### Viva la Libertad Carajo!
-#### Cualquier material de todas las materias que quieras compartir lo podes mandar a repos.libertarias@gmail.com
+#### para mandar cosas: repos.libertarias@gmail.com
 #### Si no encontras el link a un drive bueno que querias subir, en [Drive - Compartidos Conmigo](https://drive.google.com/drive/shared-with-me) estan todos los drives que abriste
 
 
