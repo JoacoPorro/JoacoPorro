@@ -1,4 +1,3 @@
-### Viva la Libertad Carajo!
 #### Para mandar cosas:  jporro@fi.uba.ar
 #### En [Drive - Compartidos Conmigo](https://drive.google.com/drive/shared-with-me) estan todos los drives que abriste
 
